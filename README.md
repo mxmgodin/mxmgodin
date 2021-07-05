@@ -1,0 +1,3 @@
+- 👾 Full-time programmer
+- 👨🏻‍🍳 Part-time baker
+- he/him
